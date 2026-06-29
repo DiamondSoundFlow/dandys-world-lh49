@@ -1,4 +1,4 @@
-
+dandy's world Scripts no-ban is the best dandy's world Script, featuring auto-farm and anti-ban. Safe and powerful for all your needs.
 
 
 
